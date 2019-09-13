@@ -2,23 +2,13 @@
 ![](https://drive.google.com/file/d/1_ONyQWtPqPLYVNqXAhymi_WFg9RGSAQo/view?usp=sharing)
 
 
-
-
-
-
-
-
-
-
-
-
-
-  #Samia Goncalves Ait Ayad 
+# Samia Goncalves Ait Ayad  
   86 rue du marais   
   Escaudoeuvres 59 161  
   Mobile: 07 67 .4 01 07  
   E-mail: Samia.vazs@hotmail.fr  
   29 ans née à Vichy 
+  
   
 # _**FORMATION**_
   **2011/2012** : 	Obtention  d’une Licence en  Administration des Echanges Internationaux, université paris 12.
