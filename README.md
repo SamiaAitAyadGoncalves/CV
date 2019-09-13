@@ -1,13 +1,11 @@
-# CV
 
- ![MA PHOTO](https://drive.google.com/uc?id=1vpoBP39uO1vg_6yuaYK0uhBAoF_vpjTM)
-  # Mme Goncalves Samia						                               
-  86 rue du marais
-  Escaudoeuvres 59 161
-  Mobile: 07 67 .4 01 07
-  E-mail: Samia.vazs@hotmail.fr
-  29 ans née à Vichy
 
+  86 rue du marais  
+  Escaudoeuvres 59 161  
+  Mobile: 07 67 .4 01 07  
+  E-mail: Samia.vazs@hotmail.fr  
+  29 ans née à Vichy 
+  
 # _**FORMATION**_
   **2011/2012** : 	Obtention  d’une Licence en  Administration des Echanges Internationaux, université paris 12.
   **2010/2011** : 	Obtention d’un DUT Techniques de Commercialisation, université paris 13.
