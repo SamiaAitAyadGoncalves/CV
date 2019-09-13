@@ -4,8 +4,8 @@
 # Samia Goncalves Ait Ayad  
   86 rue du marais   
   Escaudoeuvres 59 161  
-  Mobile: 07 67 .4 01 07  
-  E-mail: Samia.vazs@hotmail.fr  
+  Mobile: 07 67 24 01 07  
+  E-mail: Samia.vass@hotmail.fr 
   29 ans née à Vichy 
   
   
