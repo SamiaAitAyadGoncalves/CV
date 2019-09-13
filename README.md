@@ -1,6 +1,20 @@
 
+![](https://drive.google.com/file/d/1_ONyQWtPqPLYVNqXAhymi_WFg9RGSAQo/view?usp=sharing)
 
-  86 rue du marais  
+
+
+
+
+
+
+
+
+
+
+
+
+  #Samia Goncalves Ait Ayad 
+  86 rue du marais   
   Escaudoeuvres 59 161  
   Mobile: 07 67 .4 01 07  
   E-mail: Samia.vazs@hotmail.fr  
@@ -41,7 +55,7 @@
  # _**LOISIRS**_
 
    * Globetrotteuse 
-   * Filmographie  de Tim Burton 
+   * Filmographie  de Tim Burton
    * Ecriture 
    * Musique 
    * Modéle photo
