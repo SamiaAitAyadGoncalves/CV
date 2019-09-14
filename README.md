@@ -1,5 +1,5 @@
 
-![](https://PHOTOSAM.png)
+![](https://https://github.com/SamiaAitAyadGoncalves/CV/issues/1#issue-493371905)
 
 # Samia Goncalves Ait Ayad  
   86 rue du marais   
